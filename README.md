@@ -1,5 +1,5 @@
 ### Hi there 👋
-
+### 💬Shoot me an Email or add me on Linkedin.<br>
 <!--
 **iremnurkurt/iremnurkurt** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
