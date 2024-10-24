@@ -1,7 +1,7 @@
 ### Hi there 👋
 
 # 💫 About Me:
-🔭 I'm Electrical Electronics Engineer with a passion for science and human behavior.<br>💬Shoot me an Email or add me on Linkedin.<br>
+🔭 I'm Electrical Electronics Engineer.<br>💬Shoot me an Email or add me on Linkedin.<br>
 
 
 ## 🌐 Socials:
